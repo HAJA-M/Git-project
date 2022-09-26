@@ -7,5 +7,6 @@ Day 3: 3eme projet (web design)
 Day 4: 4eme projet (vacance)
 Day 5: recherche de Theme
 Day 6: Manomana memoire sy fanadinana
+Day 7: Mikaroka thème + manao loilufy
 Date 20 09 2022
 Date 

@@ -9,4 +9,6 @@ Day 5: recherche de Theme
 Day 6: Manomana memoire sy fanadinana
 Day 7: Mikaroka thème + manao loilufy
 Date 20 09 2022
-Date 
+
+Atao rahapitso 27 sept 2022
+Manao anomation car

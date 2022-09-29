@@ -9,6 +9,7 @@ Day 5: recherche de Theme
 Day 6: Manomana memoire sy fanadinana
 Day 7: Mikaroka thème + manao loilufy
 Day 8: Mametraka rig car
+Day 9: manao animation 
 Date 20 09 2022
 
 Atao rahapitso 27 sept 2022

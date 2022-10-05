@@ -11,6 +11,8 @@ Day 7: Mikaroka thème + manao loilufy
 Day 8: Mametraka rig car
 Day 9: manao animation 
 Day 10 manao site loilufy
+Day 11 : vita site loilufy miandry dernoer retpur
+         Commencement animatio sur mpn honeur (vaincre ou mourir)
 
 Date 20 09 2022
 
